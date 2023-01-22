@@ -1,0 +1,1 @@
+# krytie-avatarki-dlya-vk-2.0
